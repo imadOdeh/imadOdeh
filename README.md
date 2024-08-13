@@ -1,3 +1,3 @@
 - 🔭 I’m currently working on Daimamoda
-- 🌱 I’m currently learning Master in Computer Engineering
+- 🌱 I have Master's degree in Computer Engineering
 
